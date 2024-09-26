@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Muhammad Rafiq Nur Ghifari
 
-NIM : 
+NIM : 607062400014
 
 ## Instruksi
 
